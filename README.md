@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @chrysanthitpr
+- Newbie in programing
+- Unipi student 
